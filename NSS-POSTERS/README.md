@@ -1,8 +1,10 @@
 ## **`posters till the date`**
 
 
-### <center> `World Oceans' Day` </center>
+### `World Oceans' Day`
 <img src="https://imgur.com/MSFknWN.png" width="70%" />
 
-### <center> `Republic Day` </center>
+### `Republic Day` 
 <img src="https://imgur.com/yaTKN2G.png" width="70%" />
+
+###
