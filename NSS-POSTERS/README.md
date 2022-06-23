@@ -5,4 +5,4 @@
 <img src="https://imgur.com/MSFknWN.png" width="70%" />
 
 ### `Republic Day`
-<img src="https://imgur.com/yaTKN2G" width="70%" /> 
+<img src="https://imgur.com/yaTKN2G.png" width="70%" /> 
