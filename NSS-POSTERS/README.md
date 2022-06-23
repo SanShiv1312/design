@@ -1,3 +1,3 @@
 # **`posters till the date`**
 
-file to be added shortly 
+<img src="https://imgur.com/a/zuxKis1" width="30%" /> 
