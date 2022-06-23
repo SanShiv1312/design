@@ -1,3 +1,3 @@
 # **`posters till the date`**
 
-<img src="https://imgur.com/a/zuxKis1" width="30%" /> 
+<img src="https://imgur.com/a/zuxKis1.png" width="30%" /> 
