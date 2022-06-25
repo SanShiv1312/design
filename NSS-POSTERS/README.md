@@ -4,7 +4,5 @@
 ### `World Oceans' Day`
 <img src="https://imgur.com/MSFknWN.png" width="70%" />
 
-### `Republic Day` 
+### `Republic Day`
 <img src="https://imgur.com/yaTKN2G.png" width="70%" />
-
-###
